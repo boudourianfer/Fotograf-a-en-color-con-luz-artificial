@@ -1,1 +1,2 @@
 # Fotograf-a-en-color-con-luz-artificial
+La luz artificial tiene la ventaja sobre la luz del día de poderse usar en cada estación y a cada cambio de tiempo; la luz artificial proporciona condiciones constantes. En tal caso, remítase la foto en mejores condiciones. En ésta son menores. Las fotografías a la luz artificial requieren una emulsión fabricada especialmente para la reproducción de los colores de esta clase de iluminación.
